@@ -1,8 +1,8 @@
-# Server ZCity by sadsalat
+# Server ZCity by useless
 # Leaked by checha
 
-слив сборки 02.02.24 будущего сервера садсалата ZCity, слит игроком хомиграда - checha.
+слив сборки 02.02.24 будущего сервера useless ZCity, прикольчик сделан игроком хомиграда - checha.
 
 дискорд: chechenskyafganec
 
-салат ку
+хуй
